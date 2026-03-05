@@ -8,6 +8,8 @@ Wataru Takamine / 高峰 航
 
 * 💻 Software Engineer
 * ☕ Coffee enthusiast
+* 👨🏻‍⚕️ Medical Doctor
 * 🐱 Cat lover
+* 🚘 Car guy
 * 👨‍👩‍👧‍👦 Husband
 
